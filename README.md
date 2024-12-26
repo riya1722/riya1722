@@ -2,3 +2,4 @@
 - 👀 I’m Software developer
 - 🌱 I’m currently learning diferrent programming languages
 - ⚡ Fun fact: i love solving problems
+- reach me : renudwivedi2004@gmail.com
