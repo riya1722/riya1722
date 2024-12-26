@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Riya Dwivedi
+- 👀 I’m Software developer
+- 🌱 I’m currently learning diferrent programming languages
+- ⚡ Fun fact: i love solving problems
